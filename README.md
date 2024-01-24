@@ -13,7 +13,7 @@
 ### 🔧 Auto Farming Magic: Trigon Executor has an auto farming feature that does the work for you. It takes care of repetitive tasks so you can focus on the fun parts of the game.
 
 ### 🌐 Special Hacks and Exploits: Trigon Executor is packed with other awesome hacks and exploits, letting you discover new tricks in the game and get ahead of the competition.
-
+![2024-01-24 23 34 48](https://github.com/jiccers5/Trigon-Executor-Roblox/assets/157645346/41379331-8784-45d5-9e14-94e00b8290bd)
 ## 🛠 How to Enjoy Trigon Executor's Features:
 
 ### 1) Get Trigon Executor for free.
